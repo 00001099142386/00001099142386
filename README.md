@@ -15,4 +15,4 @@ Eu sou a 00001099142386
 
 
 
-![].(https://tenor.com/pt-BR/view/awesome-deal-with-it-cool-sun-glass-gif-5790826).
+![].(https://media1.tenor.com/m/rYoxRrWkEjoAAAAC/awesome-deal-with-it.gif).
