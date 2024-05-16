@@ -15,4 +15,4 @@ Eu sou a 00001099142386
 
 
 
-![].(https://media1.tenor.com/m/rYoxRrWkEjoAAAAC/awesome-deal-with-it.gif).
+![].( https://tenor.com/pt-BR/search/deal-with-it-gifs ).
