@@ -15,4 +15,5 @@ Eu sou a 00001099142386
 
 
 
-![].( https://tenor.com/pt-BR/search/deal-with-it-gifs ).
+![].(https://tenor.com/pt-BR/view/one-piece-anime-manga-series-luffy-smiling-gif-17594271).
+ 
